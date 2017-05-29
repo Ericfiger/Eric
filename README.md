@@ -1,1 +1,1 @@
-# Eric
+# Eric Figer
